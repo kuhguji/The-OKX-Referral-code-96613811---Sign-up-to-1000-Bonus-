@@ -1,4 +1,4 @@
-# TThe OKX Referral code " 96613811" - Sign up to $1000 Bonus 
+# The OKX Referral code " 96613811" - Sign up to $1000 Bonus 
 
 🔍 **In-Depth Review: OKX Welcome Bonus with Referral Code "96613811" – Maximize Your Crypto Potential**
 
